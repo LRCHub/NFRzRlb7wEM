@@ -1,0 +1,61 @@
+# 新谷良子 – MARCHING MONSTER
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Wow wow wow wow wow wow
+Wow wow wow wow wow wow wow wow
+Wow wow wow wow wow wow woh
+
+未開拓地 上陸したら
+デンジャーゾーンなんて 警報鳴ってるけど
+
+単刀直入に 感情注入して
+覚醒モードに 突入してやるんだ
+
+雨降りでも 風が吹いても
+止められないわけ 快進撃なんてさ
+
+We don't know You don't know
+明日はどこで 暴れまわるんだろう
+MARCHING MONSTER!!!
+
+PrettyなBig Bangで 宇宙震撼させちゃうから
+行進は止めないよ 太陽と月も見てるんだ yeah!!!
+
+つまらないんだけど 仕方がないから
+オトナの言うこと 聞いてるフリcome on!
+
+気まぐれだからさ 今日だけは許可してあげるけど
+言うこと聞いてくれないと タダじゃおかないから
+
+プライオリティーって 知ってる?
+いつの間にか 大きくなったのは
+遠くからすぐ 見つけられるから
+
+We will go You will see
+君の街にも 轟くサウンドを
+MARCHING MONSTER!!!
+
+困難がこんなんで いいワケないとか言うけどさ
+行進は止めないよ 太陽と月が笑うんだ yeah!
+
+今夜だけじゃ 終わらないから
+覚悟しててよね are you ready!?!?!?
+
+いつか星になる日が来ても 思い出してよね
+MARCHING MONSTER!!!
+
+We don't know You don't know
+明日はどこで 暴れまわるんだろう
+MARCHING MONSTER!!!
+
+PrettyなBig Bangで 宇宙震撼させちゃうから
+行進は止めないよ 太陽と月も見てるんだ yeah!!!
+
+Wow wow wow wow wow wow
+Wow wow wow wow wow wow wow wow
+
+Wow wow wow wow wow wow
+Wow wow wow wow wow wow wow wow
+```
